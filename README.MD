@@ -1,0 +1,1 @@
+Olá, Pedro! Boa sorte no seu novo objeto de estudo. Espero que este seja... Frutífero!
